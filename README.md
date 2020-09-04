@@ -1,2 +1,2 @@
-### NIU Accounting and Finance
-## Minor in Business Analytics
+## NIU Accounting and Finance
+### Minor in Business Analytics
